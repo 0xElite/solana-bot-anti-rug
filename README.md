@@ -62,8 +62,9 @@ Quickly connect to the Solana mainnet with our pre-configured URLs:
 
 Gain a competitive advantage and turn your investments into success!
 
-For more information and to purchase the bot, contact us now on Discord: [0xelitedev](https://discord.gg/0xelitedev)
+For more information and to purchase the bot, contact us now on Discord: 0xelitedev
 
 ---
+![cccccccccccccccc](https://github.com/user-attachments/assets/2a73e372-2630-4abf-aa72-d686e0d561fb)
 
-
+![GUH5D2ybAAAi2fW](https://github.com/user-attachments/assets/1da35027-1ba2-42ca-9d35-70d1f05995c0)
