@@ -68,3 +68,8 @@ For more information and to purchase the bot, contact us now on Discord: 0xelite
 ![cccccccccccccccc](https://github.com/user-attachments/assets/2a73e372-2630-4abf-aa72-d686e0d561fb)
 
 ![GUH5D2ybAAAi2fW](https://github.com/user-attachments/assets/1da35027-1ba2-42ca-9d35-70d1f05995c0)
+
+![Botscan](https://github.com/user-attachments/assets/f9326c6d-2554-4867-ba19-77a33f4d5a61)
+
+
+
